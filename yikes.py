@@ -1,0 +1,1 @@
+DELL laptop is not as good as ASUS
